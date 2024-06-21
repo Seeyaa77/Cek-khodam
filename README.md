@@ -1,1 +1,2 @@
-# Cek-khodam
+Donasi buat makan
+https://saweria.co/Ciscauxx
